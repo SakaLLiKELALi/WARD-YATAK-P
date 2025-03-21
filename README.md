@@ -1,2 +1,2 @@
-# WARD-YATAK-P
+# vardiya takip
 SAKALLiKELALi
